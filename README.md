@@ -1,1 +1,1 @@
-hangerpartyy is a bold, classy Indian clothing brand built for the working woman. We make shirts and dresses that are high quality, affordable, and never boring — think rich colours, clean cuts, and silhouettes that mean business
+hangerpartyy is a bold, classy clothing brand built for the working woman. We make shirts and dresses that are high quality, affordable, and never boring — think rich colours, clean cuts, and silhouettes that mean business
